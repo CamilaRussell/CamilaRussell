@@ -1,4 +1,4 @@
-<h1>Hi, I'm Camila! 
+<h1>Hi, I'm Camila! an IT Professional
 
 Here are some ideas to get you started:
 
